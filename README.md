@@ -7,7 +7,7 @@ I'm a  developer...
 
 - 📫 How to reach me **anhnhoang@outlook.com**
 
-- ⚡ Fun fact **I think I am funny but I am not**
+- ⚡ Fun fact **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
